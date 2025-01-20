@@ -1,1 +1,1 @@
-![Drawing](Screenshot 2025-01-20 012926.png)
+![Drawing](Screenshot_2025-01-20_012926.png)
